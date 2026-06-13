@@ -28,10 +28,10 @@ permalink: /
   {%- if latest %}
   <section class="section featured">
     <div class="section-label">Latest entry</div>
-    <h2><a href="{{ latest.url | url }}">{{ latest.data.title }}</a></h2>
+    <h2><a href="{{ latest.url }}">{{ latest.data.title }}</a></h2>
     <div class="post-meta">{{ latest.date | dmy }} &nbsp;·&nbsp; {{ latest.templateContent | readTime }} min read</div>
     <p>{{ latest.templateContent | excerpt(220) }}</p>
-    <a class="read-more" href="{{ latest.url | url }}">Keep reading →</a>
+    <a class="read-more" href="{{ latest.url }}">Keep reading →</a>
   </section>
   {%- endif %}
 
@@ -40,7 +40,7 @@ permalink: /
     <p class="album-intro">Pinned to the wall — the latest from the garden. Tilt your head; that's allowed.</p>
     <div class="album-wall">
       {%- for post in collections.posts | head(12) %}
-      <a class="polaroid" href="{{ post.url | url }}">
+      <a class="polaroid" href="{{ post.url }}">
         <span class="polaroid-photo" data-seed="{{ post.data.title }}"></span>
         <span class="polaroid-caption">{{ post.data.title }}</span>
         <span class="polaroid-date">{{ post.date | dmy }}</span>
@@ -55,7 +55,7 @@ permalink: /
     <div class="year-group">
       <div class="year-mark">{{ group.year }}</div>
       {%- for post in group.items %}
-      <a class="entry" href="{{ post.url | url }}">
+      <a class="entry" href="{{ post.url }}">
         <span class="entry-date">{{ post.date | dm }}</span>
         <span class="entry-title">{{ post.data.title }}</span>
       </a>
@@ -71,5 +71,5 @@ permalink: /
   </section>
 </main>
 
-<script src="{{ '/assets/fireflies.js' | url }}" defer></script>
-<script src="{{ '/assets/scenes.js' | url }}" defer></script>
+<script src="{{ '/assets/fireflies.js' }}" defer></script>
+<script src="{{ '/assets/scenes.js' }}" defer></script>

@@ -18,8 +18,8 @@ layout: layouts/base.njk
             {% set nextPost = posts[loop.index0 - 1] %}
             {% set prevPost = posts[loop.index0 + 1] %}
             <div class="post-nav-row">
-              <span>{% if prevPost %}<a href="{{ prevPost.url | url }}">← {{ prevPost.data.title }}</a>{% endif %}</span>
-              <span>{% if nextPost %}<a href="{{ nextPost.url | url }}">{{ nextPost.data.title }} →</a>{% endif %}</span>
+              <span>{% if prevPost %}<a href="{{ prevPost.url }}">← {{ prevPost.data.title }}</a>{% endif %}</span>
+              <span>{% if nextPost %}<a href="{{ nextPost.url }}">{{ nextPost.data.title }} →</a>{% endif %}</span>
             </div>
           {% endif %}
         {% endfor %}
