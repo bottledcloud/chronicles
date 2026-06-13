@@ -1,0 +1,18 @@
+{
+  "name": "chronicles",
+  "version": "1.0.0",
+  "type": "module",
+  "description": "The Stoned Chimp's Chronicles — a twilight prose-poetry blog",
+  "scripts": {
+    "dev": "eleventy --serve",
+    "build": "eleventy"
+  },
+  "devDependencies": {
+    "@11ty/eleventy": "^3.1.6",
+    "@11ty/eleventy-plugin-rss": "^3.0.0"
+  },
+  "main": ".eleventy.js",
+  "keywords": [],
+  "author": "",
+  "license": "ISC"
+}

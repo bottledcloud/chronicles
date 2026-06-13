@@ -1,0 +1,29 @@
+---
+layout: layouts/base.njk
+---
+<main>
+  <article class="reading--page">
+    <div class="reading-inner">
+      <h1 class="post-title">{{ title }}</h1>
+      <div class="post-meta">
+        {{ page.date | dmy }} &nbsp;·&nbsp; {{ content | readTime }} min read
+      </div>
+      <div class="post-body">
+        {{ content | safe }}
+      </div>
+      <div class="post-nav">
+        {% set posts = collections.posts %}
+        {% for p in posts %}
+          {% if p.url == page.url %}
+            {% set nextPost = posts[loop.index0 - 1] %}
+            {% set prevPost = posts[loop.index0 + 1] %}
+            <div class="post-nav-row">
+              <span>{% if prevPost %}<a href="{{ prevPost.url | url }}">← {{ prevPost.data.title }}</a>{% endif %}</span>
+              <span>{% if nextPost %}<a href="{{ nextPost.url | url }}">{{ nextPost.data.title }} →</a>{% endif %}</span>
+            </div>
+          {% endif %}
+        {% endfor %}
+      </div>
+    </div>
+  </article>
+</main>
