@@ -79,6 +79,6 @@ export default function (eleventyConfig) {
     dir: { input: "src", output: "_site" },
     markdownTemplateEngine: "njk",
     htmlTemplateEngine: "njk",
-    pathPrefix: process.env.PATH_PREFIX || "/",
+    pathPrefix: "/chronicles/",
   };
 }
