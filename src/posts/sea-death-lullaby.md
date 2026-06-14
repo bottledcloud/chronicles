@@ -1,5 +1,5 @@
 ---
-title: "SEA , DEATH &amp; LULLABY"
+title: "SEA , DEATH & LULLABY"
 date: 2025-06-20
 categories: 
   - "quotes-stories"

@@ -1,5 +1,5 @@
 ---
-title: "YELLOW &amp; FAKE BOOBS"
+title: "YELLOW & FAKE BOOBS"
 date: 2018-03-13
 categories: 
   - "lifeexperience-quotes-portrait-influencer-blogger-caption-funny"

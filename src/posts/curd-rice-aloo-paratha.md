@@ -1,5 +1,5 @@
 ---
-title: "CURD RICE &amp; ALOO  PARATHA"
+title: "CURD RICE & ALOO  PARATHA"
 date: 2018-02-27
 categories: 
   - "lifeexperience-quotes-portrait-influencer-blogger-caption-funny"

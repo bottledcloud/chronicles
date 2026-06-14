@@ -1,5 +1,5 @@
 ---
-title: "FATHER : MY ARTIST &amp; CREATOR"
+title: "FATHER : MY ARTIST & CREATOR"
 date: 2018-02-22
 categories: 
   - "lifeexperience-quotes-portrait-influencer-blogger-caption-funny"
