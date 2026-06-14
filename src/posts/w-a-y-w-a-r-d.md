@@ -71,8 +71,6 @@ Before you, I have stumbled on many faces, many fingers have fondled my hair and
 
 Every word I penned undermined how much I loved them which made them weak because my letters were the purest form of love they ever experienced. For me finding words for them wasn’t hard a glass of bourbon whiskey and a neat rolled blunt was enough to make them leave their last resort and run towards me as their false saviour.  
 
-![Screen Shot 2018-03-03 at 19.49.39.png](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/screen-shot-2018-03-03-at-19-49-391.png?w=777)
-
 I have slept on their lap narrating stories for their own impending destruction but somedays I wished if they knew my intentions but their love towards me was simply impervious to doubts. I would write intense letters during the last week of that season for them as I knew it was time for me to depart and the monster inside me meticulously enjoyed the pain they brought upon themselves.
 
 I had a jaded dairy with pictures of them pinned on dates to remind me of the pain I caused which I skim before going to sleep. My madness became non curable by then and if anybody could save me then that would be myself. I had no fear of death by then because death would be the most beautiful thing I could experience as I could write about it when I am reborn in the next. For me death would be my salvation, to run into a field with no boundaries and to sleep under the old tree where I am reborn everyday.

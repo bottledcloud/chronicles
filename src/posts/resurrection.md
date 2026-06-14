@@ -24,8 +24,6 @@ I became really sad and I went next to her and said “Don’t worry you are jus
 
 I used to get food for her which my mom prepares and she would be sitting in her bed scratching her hair trying to kill the laces she could catch hold of while keeping her ear next to the fingers just to hear it pop. As soon as she hears my call that face would lift and ask _**“Is it Vichu?”**_ and I would gladly acknowledge it with a yes and spread the plates in front of her. I take her hand & touch each plates and tell her **_“this is rice, this is beans, this is curd, this is water”_** and slowly she starts to eat with no teeth in her mouth. Sometime she would cry while eating which was hard for me to stay and watch, I wasnt sure if it was because of happiness or sadness nor I will ever know.
 
-![Screen Shot 2018-03-02 at 21.57.29](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/screen-shot-2018-03-02-at-21-57-29.png)
-
 She was suffering enough day by day as days passed while nothing could be done. Some days, when I go near her, she would ask me to come close to her so that she could kiss me and that was the sweetest thing I ever felt. I was her favorite child since the day I was born, the one who took care of me more than my mom or dad ever did.
 
 She passed away one day morning since it was an impending scenario for everyone most of my uncle and aunts handled the situation but my mom was torn apart. I being one of the eldest kid had to perform the rituals but I was never sad about the fact that she left me forever.

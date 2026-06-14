@@ -49,8 +49,6 @@ It's beautiful and painful at the same time harboring these thoughts that could 
 
 _What could I possibly hide from you? (coiling on the finger she pointed at the stars)_
 
-![IMG\_20171001\_125851-01](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/img_20171001_125851-01.jpeg)
-
 > **Humming**
 
 To lie in a field alone taming all the monsters in my head was much easier but with you beside me closing my eyes for a second drags me to another dream. I have been here before of that I’m sure, the meadow next to the river and this cold breeze is reminding me of someone who called me every other day. In my mind I can remember a vague image trying to regain its shape but I cant figure out who exactly it is.

@@ -44,8 +44,6 @@ You should be scared of your age and nothing else because with age comes choices
 
 We are species who push for a better choice rather than finding something to settle with, we ignore what our past have taught us and walk along the same path once we promised not to but this time you have very little time to make choices. You might have the energy to fight physically but not mentally, then you realize that the choices that you made were wrong again. With age you can't keep your pain inside, you start sharing your stories pointlessly to others hoping they you listen and laying your morose heart to rest for a while but can you still sleep calmly every night?
 
-\[caption id="attachment\_114" align="aligncenter" width="687"\]![img\_20180225\_163718\_464.jpg](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/img_20180225_163718_464-e1519648571836.jpg) shot on OnePlus5T\[/caption\]
-
  
 
 All your thoughts can be simplified only if you could go back in time and fix everything back to normal but then you realize for that instant that what you are thinking right now is another dream in reality. With age you should sacrifice your happiness for others and that's how this world have been running till date. If you are standing there hoping to make a decision to alter your life forever then you are the most stupidest person alive or if you are trusting in your Lord then again you are stupid because you can't compile all your fears and spread on his feet one fine day hoping to be happy for the rest of your life.

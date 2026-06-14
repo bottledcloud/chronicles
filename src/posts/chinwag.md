@@ -24,8 +24,6 @@ Whenever we fought she would run into the woods and sit next to her favourite tr
 
 I like her being silly, so I make excuses for fight to enjoy the childishness in her. She would speak without facing me contemplating on how much time we lost last summer because of these silly fights. Her hands were cold as the winds of northern sky and her words had the melancholy of the women in Rossetti’s poems both enough to obliterate my intentional stubbornness.
 
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/screenshot_20180219-224217-011.jpeg)
-
 There were no more memories she hoarded alone, no more paths she trod alone and no more secrets she held alone as I have plundered everything. It wasn’t easy to hold on to that jungle of memories so I created an arboretum where every happy memory of her was a tree and a sad one a dwarf plant.
 
 To the feet that fondled the earth below and walked towards me slowly, holding me close to her chest shattering all secrets I harboured beneath the altar of my memories.

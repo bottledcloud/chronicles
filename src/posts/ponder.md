@@ -55,8 +55,6 @@ _Time made me change how I react to being hurt, now I harbour my hurt to a playl
 
 _Bangalore traffic sucks harder than a toddler on a nipple, I am fed up of being stuck at Silk Board signal and reaching office with my balls sweating and then the parking security asks "How are you today sir?" and I take a deep breath and replies "I'm good! Did you have your breakfast?". He would say "Sir it's 11.30, abhi almost lunch ka time hain", but little did he knew that I started from my home at 10am._
 
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2020/02/img_20200131_234351_454.jpg)
-
 _I hate messing up my routines no matter what but last week my friend moved back to Coimbatore and now I have to ride back home all alone thereby I no longer drink tea from Hotel Thalaserry. Well the name is only Mallu, tea is made by a Bengali guy who migrated to Bangalore who learned Malayalam much faster than us.Kudos to that!_
 
 _As I became older, I started to miss my mom more often.. Last month when I met her I asked her if she could hand feed me & she agreed to it. I recorded the whole session in my phone where my mother hand feeds her 32 year old son. I generally don't write about my mother because I get way too emotional and then I get hurt again. So let's just stop there._

@@ -18,15 +18,11 @@ I texted John & said _**"Haven't you told her that I am teetotaller"**_. John sa
 
 She greeted me & said _**"Its a mess around here but I can definitely find a chair for both of us"**_. Alas! she sat on a chair & I got a stool where I had to be conscious of my balance. I told her that I dont remember the last time I sat on one though.
 
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/img_20171231_222237-01.jpeg)
-
 I offered her the whiskey & with no shame she started to beat shots one by one. She bought me coffee on a little cup but good lord! it was brutally tasty & I wanted to ask for one more cup but I thought let it be.
 
 I watched her drink the last drop of that whiskey without even slithering she walked around the room. I asked her _**"Do you want me to get one more whiskey, clearly that didn't even made you a bit tipsy"**_.
 
 She spend most of her time drawing & her rooms were filled with sheet of paintings & rough sketches. I assume that the things she drew are those vivid hallucinations inside her head and she can't explain the meaning of any of those paintings.
-
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/img_20180111_214210_bokeh-01.jpeg)
 
 We played some classic rock songs with alternate turns for eachother. We started picking one by one until it was 12 in the night & the room is well arranged now plus we had another cup of coffee.
 

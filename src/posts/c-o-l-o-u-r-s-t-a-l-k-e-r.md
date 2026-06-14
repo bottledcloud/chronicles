@@ -14,13 +14,9 @@ Later I also participated in every single competition she registered for and my 
 
 Soon I realized that she was the topper of her class but showing off my skills in that area was next to impossible but luck was with me as she became close to my neighbor who walks with me daily back home and she too joined since then. Back then I was scared to walk close to her proximity because I firmly believed that I looked like a walking **_5ft black dildo_**. So that crush went for like few years until we all went for higher studies.
 
-![tenor.gif](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/tenor.gif?w=786)
-
 So recently I saw her at KR Puram railway station and I knew that was her on my first sight. My heart involuntary planned my life with her (like those Karan Johar film vibes where the hero tries to show facial expression of love but end up showing a fake orgasm) and the void it would leave behind if she is not there. But my heart is more smart, my heart is a sly monster which does only calculated risks.
 
 So before doing anything by myself I thought I would share this new information with my friends i.e. Deni and Vipin while staying in Whitefield & they were really curious because I generally don't come out of my room to ask for advice. So after a lot of brainstorming sessions with them they found a plan to make it work.
-
-\[caption id="attachment\_227" align="aligncenter" width="771"\]![new1q3.JPG](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/new1q32.jpg) _look how that black guy became now :)_\[/caption\]
 
 The plan was to ask my mom & dad casually about their plans for my future & if at all they say about marriage then I would go like "yeah mom, I saw this girl and blah blah". But In order to execute this plan without losing much respect I took the help of my sister. I planned this idea on her & asked her to execute this evening & inform me about the situation.
 

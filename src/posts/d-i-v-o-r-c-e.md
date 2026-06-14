@@ -16,8 +16,6 @@ I remember sitting with her asking her to find something unique or a common grou
 
 I am sad because I lost a lot of time that could have been used for myself. I remember my mom used to tell me _**“When you run to help others make sure you haven’t forgotten yourself on the way”.**_
 
-![sadasda](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/sadasda.jpg)
-
 I don’t understand this concept of Divorce these days. What happened to “being together forever”: the only reason why you married?. Dating for 5+years and still not able to understand each other is fucking ridiculous. What happened to the promises, the letters you wrote, the money you spend on gifts and mostly what happened to the memories you created together.
 
 Why do you ask a third person about the decision you have to make in your life? You will be constantly torn between the choice of  the judgment you have made and the one who could have made only if you could listen to your heart. Why can’t everyone sit and talk it like old school rather than finding solution through inspirational quotes and YouTube videos?

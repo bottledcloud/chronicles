@@ -48,10 +48,7 @@ How could you anchor me to a shore while my heart was dragging me to a less ruin
   
 I fashioned my life alone, tread alone through paths unknown with no fear of impending dangers but now I understand that the thought of missing you hurts more than the fear of getting lost.
 
-- ![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2020/07/pexels-photo-1563356.jpeg)
-    
-
-I had no boundaries because my heart could hold limitless pain and I had nothing but  uncertainty in front of me. Ever since I met you I would wake up in the middle of the night and ramble here and there in my room because I felt like you called.  
+- I had no boundaries because my heart could hold limitless pain and I had nothing but  uncertainty in front of me. Ever since I met you I would wake up in the middle of the night and ramble here and there in my room because I felt like you called.  
   
 I never asked for love and banished everyone who stumbled on my path offering love yet you stayed back and walked alongside me even after I strangled you with a torrent of pain. Why didn’t you leave me even after all these torments? I was hurt for the first time when I turned back but couldn’t find you and since then I never tread alone.  
   

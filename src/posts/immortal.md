@@ -26,8 +26,6 @@ He took me through the valley of pain, the path which echoes the pain of every s
 
 In that pile of echoes he pointed at a kid, a kid who could hold a mountain of pain and walked along the wrong side of hell. A kid who could smile while walking through the path of forgotten heroes and put an end to the wretchedness.
 
-![FB\_IMG\_1448985217511-01](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/fb_img_1448985217511-01.jpeg)
-
 The kid was curious about a women who once invaded his dream, she was a torrent of scourge who was once lost into the wilderness. It wasn’t easy to hurt her with mortal wounds, she have blossomed to perfection by then. Men with alchemy came to plunder her heart but all died in vain while crossing her path but I found the panacea to all my nightmares right under her broken smile.
 
 _**“I was scared about this day”**_ said the fallen one, this kid with relentless pain falling for the one who held a plethora of immortal dreams. He will come back one day to prove me wrong about everything I created.

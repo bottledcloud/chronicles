@@ -24,14 +24,3 @@ Around me I only see suffering, sometimes I hesitate to be happy because out the
   
 [#StopItVishnu](https://www.instagram.com/explore/tags/stopitvishnu/)
 
-<figure>
-
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2024/03/cznmcy1wcml2yxrll3jhd3bpegvsx2ltywdlcy93zwjzaxrlx2nvbnrlbnqvbhivzmwzmzgymtgyndk3oc1pbwfnzs1rdtjjbwjmzs5qcgc.jpg?w=1024)
-
-<figcaption>
-
-[Sunrise at ephemeral ponds near Junction](https://www.rawpixel.com/image/4032667/photo-image-background-light-nature) by National Park Service is licensed under [CC-CC0 1.0](https://creativecommons.org/publicdomain/zero/1.0/)
-
-</figcaption>
-
-</figure>

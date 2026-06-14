@@ -32,15 +32,11 @@ I was like _**"**__**Duh! I know but I mean where is the real women section?**__
 
 > _"Dear Smart Shoppers, Welcome To Brand Factory!! We have some amazing offers for women's clothing today_ _**(out of nowhere he screams)**_ _"Hey Madhu, Please report to bill counter immediately and_ _**(again)**_ _Dear Smart Shoppers, Welcome To Brand Factory!! Buy dress worth 5000Rs and get yourself a duffel bag for free"_
 
-\[caption id="attachment\_202" align="alignnone" width="3120"\]![img\_20160813\_172543-01.jpeg](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/img_20160813_172543-01-e1520934548554.jpeg) **_I'm not sure which yellow this belongs to?_**\[/caption\]
-
 I walked past Forever 21 or something, ONLY, VeroModa, Umbro etcetera. I never had such delusion in my life until I asked the girl who stood next to me "_**W**__**ill yellow dresses suit for a fair white girl?"**_. She paused for a second & said _**"It depends on which yellow**__**"**_. I was like **"****_The f\*\*\*! yellow as in yellow & what do you mean by which yellow?"_**. She instantly found three yellow tops but for me that was just yellow but for her those weren't just yellows.
 
 See If you have been to Kerala, yellow is one & only color that you see in every SNDP functions and you have very fewer choices of yellow back there. But there I stood staring at different shades of yellow where one was **Dark**, one was **Medium**, one was **Light** & last one was hardcore **Y****ellow** like the color of the poop you see in a baby diaper.
 
 **What the f\*\*\* happened to my real yellow color?**
-
-\[caption id="attachment\_206" align="alignnone" width="672"\]![new1q3](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/new1q3.jpg) _**Myself and this guy had a discussion about color in Kerala one day and he gave up**_ \[/caption\]
 
 I haven't even seen few of these colors in my entire life & it's confusing to select one because you get another three varieties of the same dress in the near surroundings. So I selected one yellow and two black tops with my ideology that women prefers black color. One of the reasons why I bought three dress for her was because I wasn't sure if she would like this yellow and I didn't want her to say all my choices were bad because she is/was brutally honest.
 

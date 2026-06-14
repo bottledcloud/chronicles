@@ -43,8 +43,6 @@ categories:
 
 - I don’t like papaya and I have wondered why someone would name it Papaya which rhymes to nothing. If you ever order papaya juice while I am next to you, they I would say  **_“enthu oomban aanu papparekka juice medikunne”_.**
 
-![18880077\_10208060983076324\_8162083575981846654\_o](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/18880077_10208060983076324_8162083575981846654_o-e1519197346493.jpg)
-
 - When my ex gave birth to her second child my dad someway found a picture of her from my old wallet and sarcastically said **“_avide onam randennam kazhinju, evide ethuvare mahabali vannitilla_”**. I had to show my stupid ass face to the whole family & point out **_“You guys knew I had a girlfriend?"_**
 
 * * *

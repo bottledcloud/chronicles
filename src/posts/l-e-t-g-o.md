@@ -31,8 +31,6 @@ At some point of time you would meet an alcohol virgin who would bragg about why
 
 They would tell you how to enjoy a song without getting high or how to dance to a tune without getting high. They would tell you about Pink Floyd "Comfortably Numb" and express how flawlessly Gilmour plays the guitar and how it made them feel.
 
-![sasa](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/sasa.jpg)
-
 But what you really need is a friend who can get you really high and play Floyd's Comfortably Numb to take you to Gilmour and sing alongside him especially to experience that prick when Gilmour says "a little pink prick".
 
 Life is very short so experience things you never had before. There is nothing cool in saying I am a different when you really don't know what different means.

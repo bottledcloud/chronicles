@@ -14,8 +14,6 @@ Years later I came back to my first home and without wasting much time I ran int
 
 > “I am stuck between the lines of a song and the smile on her curly lips and I am constantly torn apart with that dream. I was hurt whenever I held a rose for her it felt like treasuring the silence after a storm. I could hear a norse drum playing in the background only to awaken the rage inside me while I hold the rose tightly inside my palm. We are futile species who are programmed to get hurt for every silly thing and ponder over prolonged memory drags."
 
-![](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/03/img_20180111_193200_356.jpg)
-
 Hurt is a magical word they said few blame others for the reason and few believes that it would turn them into a better human. You get hurt when you listen to your favorite song or when you’re denied by your loved one or when the world denies your choice or when you imagine someone else holding his/her hand.
 
 You have endured everything the seasons had to offer yet you grew bigger and taller but today, I came here to see if you have kept my secret safe. I dug near the roots to find a little treasure box that I once hid and it had been a long while since I buried my hand in soil.

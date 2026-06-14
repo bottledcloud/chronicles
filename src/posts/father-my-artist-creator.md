@@ -25,8 +25,6 @@ I have seen him staring at the broken walls and roofs, the ones that needs to be
 
 Rare are the days when my dad comes before his office hours to pick me up from school and the happiness I felt when I spot him standing near my school gate was unreal. I watched the whole world passed around me while holding tightly across his tummy leaning towards his back.
 
-![IMG\_20180220\_202616.jpg](https://thestonedchimpschronicles.wordpress.com/wp-content/uploads/2018/02/img_20180220_202616.jpg)
-
 I have never told him (not even once may be) how much I love him nor wished on his birthday but all the gifts I bought for him might have spoken. He goes through my salary slip, file my taxes, and check my bank records but never asked for money till now. He would say if you have excess money just give it to your mom she will handle it for you.
 
 He would brag in front of everyone that **_“My son is working as a consultant in an American company (stressing on American)”_** then some days he would shout in front of everyone **_“Listen, My son is an engineer working for an MN**C** who doesn’t even know how to fill a bank challan, how old are you now son”._**
